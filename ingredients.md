@@ -1,0 +1,1 @@
+Tea leaves, milk, sugar, ginger, water
